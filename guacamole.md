@@ -4,4 +4,4 @@
 * lime
 * salt
 ## Instructions
-* Peel avocados
+* Anything I waaant :)
